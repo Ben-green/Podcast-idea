@@ -19,3 +19,7 @@ Episode 1: A Brief History of the Universe
 1. Moving on to our star, the Sun, and its Solar system. Joe, tell us about the formation of the planets. (Did this involve a change towards complexity? What was reality at this point? Was this a significant event)
 
 1. Is the existence of planets necessary for life itself? Joe, tell us whether the emergence of living things led to an increase in complexity. (What about interactions? Do interactions themselves cause an increase in complexity).
+
+### Program Notes
+* Details about the TED talk mentioned
+* Details about the book mentioned
