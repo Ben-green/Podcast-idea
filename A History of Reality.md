@@ -1,7 +1,7 @@
 A History of Reality
 ====================
 
-Thank you for downloading this podcast from Joe Salmon. We hope that you enjoy the show.
+Thank you for downloading this episode of "A History of Reality" from Joe Salmon. For more iformation about "A History of Reality", please visit our website. We hope that you enjoy the show.
 
 Episode 1: A Brief History of the Universe
 -------------------------------
